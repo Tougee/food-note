@@ -35,3 +35,10 @@
 - 山东烟台 [阿宋烧烤](http://www.dianping.com/shop/37793415) **烤海肠**
 - 湖南岳阳 老字号阳历烧烤 **烤牛油**
 - 陕西西安 [杨姐烤肉](http://www.dianping.com/shop/1945288) **糖醋牛板筋**
+
+[人生一串：第五集 骨头骨头](https://www.bilibili.com/bangumi/play/ep233324/)
+- 宁夏银川 宝子烧烤 **烤羊蹄** **烤羊排**
+> 烧烤三宝：孜然 辣椒面 盐
+- 辽宁锦州 福德转盘金鸡鸡嘴正对餐饮一条街 [老五烧烤凤爪一绝](http://www.dianping.com/shop/9923143) **烤鸡爪** **烤河蟹**
+- 云南昆明 [江湖一盏灯](http://www.dianping.com/shop/22991720) **烤鸡脚** **烤猪脚**
+- 安徽滁州 [元素碳烤工坊](http://www.dianping.com/shop/79261111) **烤小龙虾**
