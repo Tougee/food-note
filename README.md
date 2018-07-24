@@ -42,3 +42,9 @@
 - 辽宁锦州 福德转盘金鸡鸡嘴正对餐饮一条街 [老五烧烤凤爪一绝](http://www.dianping.com/shop/9923143) **烤鸡爪** **烤河蟹**
 - 云南昆明 [江湖一盏灯](http://www.dianping.com/shop/22991720) **烤鸡脚** **烤猪脚**
 - 安徽滁州 [元素碳烤工坊](http://www.dianping.com/shop/79261111) **烤小龙虾**
+
+[人生一串：第六集 朝圣之地](https://www.bilibili.com/bangumi/play/ep234533/)
+- 哈尔滨 [老太太烧烤](http://www.dianping.com/shop/2396785) **肥翅** **烤鸡蛋**
+- 扬州 [商老三烧烤](http://www.dianping.com/shop/111908768) **肥大串**
+- 福州 [阿龙烧烤](http://www.dianping.com/shop/6248184) **烤香肠** **烤生蚝**
+- 广州 [风筒辉烧烤](http://www.dianping.com/shop/79446460)
