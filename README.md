@@ -50,6 +50,28 @@
 - 福州 [阿龙烧烤](http://www.dianping.com/shop/6248184) **烤香肠** **烤生蚝**
 - 广州 [风筒辉烧烤](http://www.dianping.com/shop/79446460)
 
+### 川味
+[第一季](https://www.bilibili.com/bangumi/play/ep119598)
+#### 麻婆豆腐
+- 江油市青林口古镇 [李氏豆腐庄](http://www.dianping.com/shop/23583888)
+- 乐山西坝 [开水鸡·西坝豆腐传承店](http://www.dianping.com/shop/13740594)
+- [陈麻婆豆腐(骡马市店)](http://www.dianping.com/shop/526556) **麻辣烫捆酥嫩鲜香**
+#### 竹宴
+四川雷波县 罗汉笋 竹荪
+#### 泡菜
+- 素：西芹 胡萝卜 洋葱蒜台
+- 荤（高胶原蛋白）：猪蹄 鸡爪 猪尾巴 猪耳朵
+- 配：甘蔗 酒
+#### 坛子肉
+#### 东坡肘子
+**东坡石头宴**
+- [眉州东坡(三苏祠店)](http://www.dianping.com/shop/4084933)
+#### 火锅
+- [楠柏弯生态火锅山庄(胜利店)](http://www.dianping.com/shop/17652849)
+- [玛歌庄园陆派火锅(五龙山店)](http://www.dianping.com/shop/96069779)
+#### 豆瓣
+郫县豆瓣
+
 ### 上菜
 [上菜第二季 小龙虾](https://www.bilibili.com/video/av18151607)
 - 2分 [花家怡园(四合院总店)](http://www.dianping.com/shop/507755) **江苏盱眙麻辣十三香小龙虾**
