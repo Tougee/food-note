@@ -1,5 +1,5 @@
 # 美食记录
-记录尝过或者看过的美食
+记录[尝过](https://github.com/Tougee/food-note/blob/master/arrived.md)或者看过的美食
 
 ## 纪录片
 [寻味顺德](https://www.bilibili.com/video/av4515963?from=search&seid=2759475930130801296)
