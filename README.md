@@ -49,3 +49,10 @@
 - 扬州 [商老三烧烤](http://www.dianping.com/shop/111908768) **肥大串**
 - 福州 [阿龙烧烤](http://www.dianping.com/shop/6248184) **烤香肠** **烤生蚝**
 - 广州 [风筒辉烧烤](http://www.dianping.com/shop/79446460)
+
+### 人生一串 第二季
+[人生一串 第二季：第1集 您几位啊](https://www.bilibili.com/bangumi/play/ep277172)
+- 洛阳 [马坡二旦烧烤](http://www.dianping.com/shop/40409462) **烤鲶鱼** **烤全羊**
+- 兰州 [有奴思嘉峪关烤肉店](http://www.dianping.com/shop/6112002) **羊肉串(羯羊)**
+- 泉州 [古趣烧烤](http://www.dianping.com/shop/5302471) **鸡翅**
+- 沈阳 [传说鸡架神奇小店](http://www.dianping.com/shop/68541901) **鸡架**
