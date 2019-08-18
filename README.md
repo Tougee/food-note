@@ -51,8 +51,15 @@
 - 广州 [风筒辉烧烤](http://www.dianping.com/shop/79446460)
 
 ### 人生一串 第二季
-[人生一串 第二季：第1集 您几位啊](https://www.bilibili.com/bangumi/play/ep277172)
+[人生一串：第1集 您几位啊](https://www.bilibili.com/bangumi/play/ep277172)
 - 洛阳 [马坡二旦烧烤](http://www.dianping.com/shop/40409462) **烤鲶鱼** **烤全羊**
 - 兰州 [有奴思嘉峪关烤肉店](http://www.dianping.com/shop/6112002) **羊肉串(羯羊)**
 - 泉州 [古趣烧烤](http://www.dianping.com/shop/5302471) **鸡翅**
 - 沈阳 [传说鸡架神奇小店](http://www.dianping.com/shop/68541901) **鸡架**
+
+[人生一串：第二集 咱家特色](https://www.bilibili.com/bangumi/play/ep277173)
+- 沈阳 [琴江串店](http://www.dianping.com/shop/114565929) **羊枪** **羊蛋** **羊腰**
+- 来宾 [原汁原味烤老鼠](http://www.dianping.com/shop/1648808443) **烤老鼠** **鼠蛋酒**
+- 长沙 [胡嗲单车烧烤(坡子街店)](http://www.dianping.com/shop/57511774) **烤排骨** **烤蛇**
+- 昆明 [夏大妈烧烤](http://www.dianping.com/shop/5262520) **葱肠**
+- 伊通满族自治州 [伊通龙凤烧鸽子](http://www.dianping.com/shop/40332677) **烧鸽子**
