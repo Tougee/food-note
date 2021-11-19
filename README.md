@@ -51,7 +51,7 @@
 - 广州 [风筒辉烧烤](http://www.dianping.com/shop/79446460)
 
 ### 人生一串 第二季
-[人生一串：第1集 您几位啊](https://www.bilibili.com/bangumi/play/ep277172)
+[第-集 您几位啊](https://www.bilibili.com/bangumi/play/ep277172)
 - 洛阳 [马坡二旦烧烤](http://www.dianping.com/shop/40409462) **烤鲶鱼** **烤全羊**
 - 兰州 [有奴思嘉峪关烤肉店](http://www.dianping.com/shop/6112002) **羊肉串(羯羊)**
 - 泉州 [古趣烧烤](http://www.dianping.com/shop/5302471) **鸡翅**
@@ -63,3 +63,11 @@
 - 长沙 [胡嗲单车烧烤(坡子街店)](http://www.dianping.com/shop/57511774) **烤排骨** **烤蛇**
 - 昆明 [夏大妈烧烤](http://www.dianping.com/shop/5262520) **葱肠**
 - 伊通满族自治州 [伊通龙凤烧鸽子](http://www.dianping.com/shop/40332677) **烧鸽子**
+
+### 人生一串 第三季
+[第一集 地不地道](https://www.bilibili.com/bangumi/play/ep429796)
+- 淄博 [高丽烧烤](http://www.dianping.com/shop/k6GkkJ62phlTqLkB) **小饼**
+- 延吉 [好牛烧烤](http://www.dianping.com/shop/GahwmwWvWSvvyyXj) **延吉黄牛**
+- 延吉 大兴沟镇 老宋烧烤 **牛小肝儿**
+- 中山 [大师兄烧烤](http://www.dianping.com/shop/jYKtoNVWl7RG3ktp) **脆肉皖**
+- 勐海县 [百旺烧烤](http://www.dianping.com/shop/H8LZ0gQZLHKNNeO1) **百旺**
