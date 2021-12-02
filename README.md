@@ -71,3 +71,9 @@
 - 延吉 大兴沟镇 老宋烧烤 **牛小肝儿**
 - 中山 [大师兄烧烤](http://www.dianping.com/shop/jYKtoNVWl7RG3ktp) **脆肉皖**
 - 勐海县 [百旺烧烤](http://www.dianping.com/shop/H8LZ0gQZLHKNNeO1) **百旺**
+
+[第二集 吃个新鲜](https://www.bilibili.com/bangumi/play/ep429797)
+- 伊犁 [艾散江烤肉] 老哈桑奇派出所边上 **塞脾** **烤奶脬**
+- 丽江 [俄古罗限量版烧烤](http://www.dianping.com/shop/G4aCzSJS5HKMYdzC) **烤鸡脚**
+- 丽水 [炭烤猪头排] 灯塔三村66号 **烤猪头瓣**
+- 安顺 [九溪特色烤小肠] **烤小肠**
