@@ -77,3 +77,19 @@
 - 丽江 [俄古罗限量版烧烤](http://www.dianping.com/shop/G4aCzSJS5HKMYdzC) **烤鸡脚**
 - 丽水 [炭烤猪头排] 灯塔三村66号 **烤猪头瓣**
 - 安顺 [九溪特色烤小肠] **烤小肠**
+
+[第三集 透明包间](https://www.bilibili.com/bangumi/play/ep429798)
+- 图们 [茅草屋烧烤](http://www.dianping.com/shop/k8ER0FPlV3oL4oJz) **羊肉串**
+- 深圳 [宝安区野外烧烤] **烤鲫鱼**
+- 策勒 [阿日希村 艾力] **馕坑 烤全羊**
+- 成都 [呼吉牧蒙古烤肉](http://www.dianping.com/shop/G7usQOzc4ygEj4I2) **烤羊排**
+  - [晓靖轩烧烤](http://www.dianping.com/shop/G20JuXMxlnipobTQ) **烤鳝片**
+  - [抚琴第一烧烤](http://www.dianping.com/shop/l5JFcRJFZndZQPDb) **掌中宝**
+  - [抚琴第一烤](http://www.dianping.com/shop/l8AZDm3yLuzPwB2t) **烤五花**
+  - [肖家河烧烤店](http://www.dianping.com/shop/l8QqWXzU3BjgnIvU) **邵子脑花**
+  - [林记烧烤](http://www.dianping.com/shop/l4McrbBAgxkihwMS)
+  - [老刘烧烤](http://www.dianping.com/shop/laGFElkLMxqzyGSy)
+  - [曾哥烧烤](http://www.dianping.com/shop/H4nEa9jOewa4gU1g)
+  - [王大爷烧烤](http://www.dianping.com/shop/l9hLgS5DDaCk7e8Y)
+  - [江哥烧烤](http://www.dianping.com/shop/l3xP095SffoVl5rJ)
+  - [杨记一盏灯](http://www.dianping.com/shop/l4jZxIjOxje0ycgj)
