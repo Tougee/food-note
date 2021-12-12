@@ -93,3 +93,10 @@
   - [王大爷烧烤](http://www.dianping.com/shop/l9hLgS5DDaCk7e8Y)
   - [江哥烧烤](http://www.dianping.com/shop/l3xP095SffoVl5rJ)
   - [杨记一盏灯](http://www.dianping.com/shop/l4jZxIjOxje0ycgj)
+
+[第四集 当心火候](https://www.bilibili.com/bangumi/play/ep429799)
+- 武汉 [小胡子祥彪烧烤](http://www.dianping.com/shop/l3LijLXG2iWRQhYJ) **烤鸡胗**
+- 嘉峪关 [眼镜烤肉](http://www.dianping.com/shop/k7qCxDxhhRSPQaiY) **烤羊皮**
+- 长春 [老李烧烤月牙骨肉串](http://www.dianping.com/shop/l40FKQkiNq6P4nRt) **月牙骨**
+- 长春 [民窑烧烤](http://www.dianping.com/shop/k5s0UpcLlwvstKBY) **坑烤大公鸡**
+- 济南 [金忠烧烤](http://www.dianping.com/shop/l7ygeXUPthNAU1we) **烤肋扇**
